@@ -16,4 +16,4 @@
 
 #### Social Media:
 - **Twitter:** [Click Me](https://twitter.com/PuddinArts)
-- **Discord:** `𝐏𝐮𝐝𝐝𝐢𝐧#0001`
+- **Discord:** `sorrow#6475`
